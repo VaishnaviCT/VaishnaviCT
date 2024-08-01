@@ -1,5 +1,5 @@
 # 💫 About Me:
-I a'm Vaishnavi 
+Hi👋, I'm Vaishnavi 
 
 
 ## 🌐 Socials:
